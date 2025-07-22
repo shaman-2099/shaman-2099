@@ -1,6 +1,6 @@
 hi
 
-im egotistical, im aware, scared of myself, but i try to be kind and other stuff like that
+im egotistical, scared of myself, but i try to be kind and other stuff like that
 
 hope thats okay
 
